@@ -1,0 +1,1 @@
+# Padrao_empresa_parceira
